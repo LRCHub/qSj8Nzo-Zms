@@ -1,0 +1,104 @@
+# Yung Gravy – oops!
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Ayy,
+supercalifragilisticexpiali
+dope shit
+Supercalifragi lick my ex be
+on some ho shit
+Superman, I get dem bands
+but ain't gon' buy you roses
+Super-duper get them cougars,
+took my wrist and froze it
+Super-duper hoes
+Y'all got Oompa Loompa hoes
+I ain't never knew ya hoes
+Prolly still ran through 'em,
+though
+Oh, wait, wait, I,
+I do know your ho?
+You talkin' 'bout,
+you talkin' 'bout Tracy?
+Nah, you mean like, like,
+Tracy with the ass?
+Tracy with the, with the Honda?
+Shit, well
+Oops, baby
+Fuck up on your bitch,
+like oopsy daisy
+Never knew
+that was your boo, baby
+Hit her five times in the coupe,
+Mercedes, whoopsie daisy
+Oops, baby
+Gravy hit my bitch, yeah,
+whoopsie daisy
+I just tryna hit,
+it's my duty, baby
+Sippin' on the goose,
+like Boosie, baby
+Yeah, I said oops, baby
+Fuck up on your bitch,
+like oopsy daisy
+Never knew
+that was your boo, baby
+Hit her five times in the coupe,
+Mercedes, whoopsie daisy
+Oops, baby
+Gravy hit my bitch, yeah,
+whoopsie daisy
+I just tryna hit,
+it's my duty, baby
+Sippin' on the goose,
+like Boosie, baby
+Lil' bitch,
+I'm happy and I know it so
+I clap them fuckin' cheeks, yeah
+I'm happy and I show it
+to your momma in the sheets
+And I'm happy she's a freak ho,
+happy so my teeth glow
+Yeah, my bitch elite,
+I be clapping every week
+My neck, my back,
+got your momma on my sack
+My checks, my racks,
+it's the return
+of the motherfuckin' mack
+And I stay with the pack, though
+Clap, clap,
+then I'm out the backdoor
+Lil' Pillsbury, I stack dough
+Walkin' with a limp,
+like a crack ho
+Yeah, I said oops, baby
+Fuck up on your bitch,
+like oopsy daisy
+Never knew that was your boo,
+baby
+Hit her five times in the Coupe,
+Mercedes, whoopsie daisy
+Oops, baby
+Gravy hit my bitch, yeah,
+whoopsie daisy
+I just tryna hit, it's my duty,
+baby
+Sippin' on the goose,
+like Boosie, baby
+Yeah, I said oops, baby
+Fuck up on your bitch,
+like oopsy daisy
+Never knew that was your boo,
+baby
+Hit her five times in the Coupe,
+Mercedes, whoopsie daisy
+Oops, baby
+Gravy hit my bitch, yeah,
+whoopsie daisy
+I just tryna hit, it's my duty,
+baby
+Sippin' on the goose,
+like Boosie, baby
+```
